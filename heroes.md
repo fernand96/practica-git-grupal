@@ -1,5 +1,5 @@
 # Objetivos del archivo heroes.md
 
-* IronMan este man murio y no lo esperaba
-* Black Panter himotek hinmotek
+* IronMan el mejor vengador
+* Black Panter Wakanda FOREVER <3
 * SpiderMan regreso a casa
