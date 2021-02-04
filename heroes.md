@@ -1,5 +1,5 @@
 # Objetivos del archivo heroes.md
 
-* IronMan este man murio y no lo esperaba
+* IronMan este man solo de rico
 * Black Panter himotek hinmotek
-* SpiderMan regreso a casa
+* SpiderMan es un chavalitoooo 
