@@ -1,7 +1,9 @@
 # Tengo hambre y quiero comer pizza xD
 ## complementos:
-* pan de ajo
+
+* alitas
+* canelones son ricos
 * postre (3 leches)
+* ensalada
+* Una uva
 * no puede faltar la coquita <3
-* si y el fresco natural mejor  
-* super suprema y alitas
