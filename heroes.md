@@ -1,5 +1,5 @@
 # Objetivos del archivo heroes.md
 
-* IronMan
-* Black Panter
+* IronMan el mejor vengador
+* Black Panter Wakanda FOREVER <3
 * SpiderMan
