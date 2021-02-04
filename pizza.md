@@ -1,8 +1,9 @@
 # Tengo hambre y quiero comer pizza xD
 ## complementos:
-* pan
+
+* alitas
 * canelones son ricos
 * postre (3 leches)
 * ensalada
 * Una uva
-* helado 
+* no puede faltar la coquita <3
