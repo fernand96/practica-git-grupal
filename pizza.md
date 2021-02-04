@@ -3,4 +3,4 @@
 * pan de ajo
 * canelones
 * postre (3 leches)
-* helado con una cocacola 3.0 
+* no puede faltar la coquita <3
