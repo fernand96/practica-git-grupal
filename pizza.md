@@ -3,4 +3,4 @@
 * pan de ajo
 * canelones
 * postre (3 leches)
-* helado 
+* helado con una cocacola 3.0 
