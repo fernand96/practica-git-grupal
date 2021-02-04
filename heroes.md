@@ -1,5 +1,5 @@
 # Objetivos del archivo heroes.md
 
-* IronMan el mejor vengador, UNIVERSO DE MARVEL
+* IronMan este man solo de rico
 * Black Panter Wakanda FOREVEEEEEER
-* SpiderMan regreso a casa, se viene la 3
+* SpiderMan es un chavalitoooo
